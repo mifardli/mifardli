@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Perkenalkan nama saya **Miftahul Ardli**  
+Mahasiswa Tingkat Akhir Universitas Padjadjaran Program Studi Agroteknologi  
+Saat ini, saya sedang mempelajari seputar ilmu komputer beserta penerapannya.  
+
+**ONE STEP CLOSER TO THE GOALS**
