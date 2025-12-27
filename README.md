@@ -16,6 +16,9 @@ Here are some ideas to get you started:
 -->
 
 
+![Profile Views](https://komarev.com/ghpvc/?username=mifardli&color=brightgreen)
+
+
 **ONE STEP CLOSER TO THE GOALS**
 
 <p align="left">
